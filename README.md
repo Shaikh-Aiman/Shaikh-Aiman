@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **penetration testing, cybersecurity tools and secure coding**
 
-- 📫 How to reach me **shaikh.aiman1227@gmail.com**
+- 📫 How to reach me **shaikh.aiman2712@gmail.com**
 
 - ⚡ Fun fact **I once discovered my smart tv was easier to hack than my computer—turns out, even appliances have secrets!**
 
